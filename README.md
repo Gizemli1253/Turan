@@ -1,0 +1,2 @@
+# Turan
+Her şey Yolunda 
